@@ -12,4 +12,4 @@ dll
 Apakah Berbayar ? Tidak
 
 Contact Me : +6281912488040 
-WhatsApp & Call
+WhatsApp & Call & OVO
